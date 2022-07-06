@@ -6,4 +6,4 @@
 - 👯 I’m looking to collaborate on worthwhile tasks for people
 - 🏌🏻 interesting in golf and... parenting
 - 📫 get in touch with me via gmail - psk492
-- ⚡ Fun fact: The only source of knowledge is EXPERIENCE.
+- ⚡ The only source of knowledge is EXPERIENCE.
